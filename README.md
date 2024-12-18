@@ -1,1 +1,0 @@
-# LeonelAgustav-Supermarket-Management
